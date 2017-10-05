@@ -7,4 +7,4 @@ Jednak nie tylko odległa perspektywa wakacji ciążyła Tosi na sercu. Ostatnio
 Dziewczynka zatanczyla z radosci
 -Hurra! 
 
-- O matko - powiedział kolega dziewczyny. 
+- O matko - powiedział kolega dziewczyny, który był rudy. 
